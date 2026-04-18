@@ -1,2 +1,2 @@
 # certifications
-certifies  in  various IT courses  as  an  IT expert
+certified  in  various IT courses  as  an  IT expert
